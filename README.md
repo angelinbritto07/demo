@@ -13,3 +13,8 @@ My MOTHER'S name is JENIFER
 My FATHER'S name is BRITTO
 I have my annoying elder one named ALWIN
 My favourite one among them is my MOM !
+#Role model
+My Greatest Rolemodel is my MOM
+I've learned many things like kindness,hardwork,and her sense of humour
+She's the one who guide me very friendly even I was wrong in my path
+She used care me with all of her LOVE 
